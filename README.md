@@ -1,0 +1,2 @@
+- Minjae Kim
+- Student of DGIST
